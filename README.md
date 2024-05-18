@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
 
 😄 Pronouns: She/Her <br>
-🇯🇵 Born and Raised in Japan <br>
+🇯🇵 Born and raised in Japan <br>
 🇰🇷 Studied abroad in South Korea for a semester <br>
