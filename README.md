@@ -15,4 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-😄 Pronouns: she/her
+🇯🇵 Born and Raised in Japan
+🇰🇷 Studied abroad in South Korea for a semester
+😄 Pronouns: She/Her
