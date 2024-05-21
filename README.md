@@ -17,4 +17,4 @@ Here are some ideas to get you started:
 
 😄 Pronouns: She/Her <br>
 🇯🇵 Born and raised in Japan <br>
-🇰🇷 Studied abroad in South Korea for a semester <br>
+🇰🇷 Studied abroad in South Korea for a semester in 2023<br>
