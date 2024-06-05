@@ -15,6 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+I am a master’s student, and I am currently studying cryptography. I plan on graduating in March 2026. <br>
+https://qiita.com/martina328 <br>
+
 😄 Pronouns: She/Her <br>
 🇯🇵 Born and raised in Japan <br>
 🇰🇷 Studied abroad in South Korea for a semester in 2023<br>
