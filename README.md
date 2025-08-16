@@ -20,4 +20,4 @@ https://qiita.com/martina328 <br>
 
 🌟 Pronouns: She/Her <br>
 🌟 Born and raised in Japan <br>
-🌟 Studied abroad in South Korea for a semester in 2023<br>
+🌟 Studied abroad in South Korea, in Germany and in the US<br>
